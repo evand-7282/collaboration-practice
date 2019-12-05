@@ -2,11 +2,11 @@
 #### 2
 #### 3 lmao ur funny
 #### 4
-#### 5 u silly potato 
+#### 5 u silly potato
 #### 6
 #### 7 yuore a bihc :(
 #### 8
-#### 9 Github is doo-doo 
+#### 9 GitHub is doo-doo (?) 
 #### 10
 #### 11
 #### 12
