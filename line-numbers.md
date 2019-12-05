@@ -6,7 +6,7 @@
 #### 6
 #### 7 yuore a bihc :(
 #### 8
-#### 9 GitHub is doo-doo (?) 
+#### 9 GitHub is "not" doo-doo (?)
 #### 10
 #### 11
 #### 12
